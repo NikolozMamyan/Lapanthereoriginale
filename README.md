@@ -1,1 +1,1 @@
-# Lapanthereoriginale.io
+https://nikolozmamyan.github.io/Lapanthereoriginale.io/
